@@ -7,4 +7,4 @@
 - [Instagram](https://www.instagram.com/gcsrilanka/)
 - [Twitter](https://twitter.com/gcsrilanka)
 - [YouTube](https://www.youtube.com/channel/UCVapZkkBAbbYhpl5UeFvrFQ)
-- [Discord](https://discord.gg/uR84QnAC)
+- [Discord](https://discord.gg/DzGGk2mbaJ)
